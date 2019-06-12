@@ -72,4 +72,3 @@ Als kind hast du gern gemalt?
 
     Hausafgaben = homework
     wieden = once again
-
