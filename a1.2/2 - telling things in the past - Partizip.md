@@ -1,4 +1,4 @@
-# Telling things in the past
+# Telling things in the past (Partizip)
 
 `seit vier Jahren` / `vor vier Jahren`
 
