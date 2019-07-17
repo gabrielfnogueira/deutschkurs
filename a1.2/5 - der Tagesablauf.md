@@ -1,0 +1,2 @@
+Ich muss von Montag und Mittwoch am Morgen um 7 Uhr aufstehen aber von Dienstag, Donnerstag und Freitag ich muss um 8 Uhr aufstehen. \
+Ich darf früshstücken. Dann muss ich die Tram nehmen ins Büro. Ich muss 8 Stunden arbeit, aber ich muss eine Stunde Mittagspause machen.
